@@ -1,7 +1,7 @@
 # Corporatism and A.I.: 10-09-2026
 ## written by Richard Pham 
 
-My last article of the year on some socio-economic qualities pertaining to A.I.
+My last article of the year on A.I., with special focus on some qualities of socio-economics.
 -------------------------------------------------------------------------------
 
 ### What will people's honest thoughts on the A.I. Boom years be, 10-15 years from now? 
