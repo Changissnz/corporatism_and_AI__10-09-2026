@@ -144,3 +144,41 @@ demonstrate otherwise so that their contradictory statements on where they stand
 surely make them a hypocrite. 
 
 
+### The Sides and the Representation 
+
+In this article, [Respects from Southern Scum](https://github.com/Changissnz/respects_from_southern_scum), 
+I mentioned the two colonial identities, Anglo-Saxon and French. As a recollection, there were 
+statements that the Anglo-Saxon identity, if credit is to be given to their status of administration, 
+was responsible for the famines that occurred in India, as well as corruption in Burma. And 
+the French identity was responsible for producing Haiti and the ideological degeneracy of 
+Vietnam. Those statements would most certainly offend some people, out of their pride, 
+denial, or their far-removed personal contribution to those problems. These disputes would 
+fall under the general problem of faulty attribution. 
+
+Great Britain wanted to administer India. France wanted to administer the lands they did. 
+They wanted the official recognition, so it would only make sense that the problems that 
+occurred under their administration would be attributed to them. But when one takes a step 
+back and views those chains of events in terms of individual choices as well as the societal 
+structures in play, then it would be somewhat outrageous to claim with confidence that 
+Indians could not resolve their famines, Vietnamese could not produce representative democracy 
+nor administer their plantations without French administration, and so on. It is a game with 
+serious consequences, the acts of historical and political attribution to the causes of 
+problems. It is irrational when agents in the name of matters such as the nation-state, the 
+tribe, the organization and so on, choose sides and reframe the circumstances of the problems 
+they revolve around as the adverse effects of the other. Simple in concept, overwhelmingly 
+complex in industrial practice and beyond. The problems of A.I. as agents that judge will 
+predictably fumble, on a frequent basis, for these matters. The concept of possession and 
+rights is another super-umbrella related to these problems of judgment. 
+
+As these years go by, and A.I. technologies become more capable and pose more risks outside 
+of control, if that phrasing really adds up, there will be more problems involving faulty 
+attribution. People already see or experience faulty attribution. Right now, people see 
+that play out with disputes over corporate royalties. Sony Music Publishing & Warner Chappell 
+Music versus Anthropic. The New York Times and OpenAI are still in court. Most commoners 
+will be on the sidelines for these events. But as A.I. proliferates itself further into 
+the lives of commoners around the world, the theme of faulty attribution will occur along 
+more lines than just the corporatist ones. Of course, an optimist would not want to entertain 
+the idea that the contended lines would be nation-state lines, for that would involve 
+significant armed conflict. But it is possible. There are also a significant number of 
+activists in developed nations that have been voicing their concerns over A.I. in terms 
+of class divisions, which probably will not entirely yield the results they want.
