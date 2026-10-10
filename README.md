@@ -160,7 +160,7 @@ fall under the general problem of **faulty attribution**.
 
 Great Britain wanted to administer India. France wanted to administer the lands they did. 
 They wanted the official recognition, so it would only make sense that the problems that 
-occurred under their administration would be attributed to them. But when one takes a step 
+occurred under their administration be attributed to them. But when one takes a step 
 back and views those chains of events in terms of individual choices as well as the societal 
 structures in play, then it would be somewhat outrageous to claim with confidence that 
 Indians could not resolve their famines, Vietnamese could not produce representative democracy 
