@@ -153,7 +153,7 @@ was responsible for the famines that occurred in India, as well as corruption in
 the French identity was responsible for producing Haiti and the ideological degeneracy of 
 Vietnam. Those statements would most certainly offend some people, out of their pride, 
 denial, or their far-removed personal contribution to those problems. These disputes would 
-fall under the general problem of faulty attribution. 
+fall under the general problem of **faulty attribution**. 
 
 Great Britain wanted to administer India. France wanted to administer the lands they did. 
 They wanted the official recognition, so it would only make sense that the problems that 
