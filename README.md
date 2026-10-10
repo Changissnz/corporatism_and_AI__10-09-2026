@@ -131,7 +131,7 @@ especially since it is not my official occupation.
 ### Corporatism: The Belief and the Actualities 
 
 Some people will scoff at the idea of corporatism. There are inevitably quite some 
-numbers of people that will feel threatened if not already feel threatened by how 
+numbers of people that will feel threatened if not already feeling threatened by how 
 these technological developments have been proceeding under a corporatistic structure. 
 It is important to note the distinction between "corporate" and "corporatist". A 
 corporatist does not have to work directly for corporate organization. A corporatist 
