@@ -136,7 +136,7 @@ these technological developments have been proceeding under a corporatistic stru
 It is important to note the distinction between "corporate" and "corporatist". A 
 corporatist does not have to work directly for corporate organization. A corporatist 
 only needs to react to the corporate organization, A.I. in this discussion, in ways 
-that signify that they must believe in the corporate impact of A.I. even though they 
+that signify they must believe in the corporate impact of A.I. even though they 
 might disapprove or be vehemently against A.I., the scaling and/or socio-economic and 
 cultural impacts. Where ever A.I. corporatism will move into, it will undoubtedly 
 spur great changes that upset the equilibriums of poor or rich and dumb or smart 
