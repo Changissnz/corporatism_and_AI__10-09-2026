@@ -6,7 +6,7 @@ My last article of the year on some socio-economic qualities pertaining to A.I.
 
 ### What will people's honest thoughts on the A.I. Boom years be, 10-15 years from now? 
 
-Suppose opinions are about diversified but soured in many ways, sort of like how 
+Suppose opinions are diversified but soured in many ways, sort of like how 
 the American populace of laborers and administrators has especially been since 
 the 2008 financial crash. Well, then opinions and perspectives abound so that 
 there is no way to state any one with utmost factuality. One thing's for sure, 
