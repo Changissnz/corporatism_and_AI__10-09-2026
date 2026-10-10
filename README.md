@@ -117,7 +117,8 @@ become more disenchanted with these novelties as ancient themes of dogma once
 again emerge to answer to the plights and despairs of humanity. In concentrated 
 terms, that would be nationalism and religion.** 
 
-> "A.I. is to be controlled by this nation-state." 
+> "A.I. is to be controlled by this nation-state."
+>   
 > "There is still a higher power even with how powerful A.I. has become."
 
 Despite how annoying and insincere a lot of the conversation about A.I. has become 
