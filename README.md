@@ -122,3 +122,25 @@ Despite how annoying and insincere a lot of the conversation about A.I. has beco
 within the last three years or so, people such as me already know it's wiser to 
 appreciate than to really indulge into the serious classics (nationalism and religion), 
 especially since it is not my official occupation. 
+
+---------------------------------------------------------------------------------------------------------------------------
+
+### Corporatism: The Belief and the Actualities 
+
+Some people will scoff at the idea of corporatism. There are inevitably quite some 
+numbers of people that will feel threatened if not already feel threatened by how 
+these technological developments have been proceeding under a corporatistic structure. 
+It is important to note the distinction between "corporate" and "corporatist". A 
+corporatist does not have to work directly for corporate organization. A corporatist 
+only needs to react to the corporate organization, A.I. in this discussion, in ways 
+that signify that they must believe in the corporate impact of A.I. even though they 
+might disapprove or be vehemently against A.I., the scaling and/or socio-economic and 
+cultural impacts. Where ever A.I. corporatism will move into, it will undoubtedly 
+spur great changes that will upset the equilibriums of poor or rich and dumb or smart 
+in those territories. 
+
+It's one of those concerns where even if a person claims to not believe in, their actions 
+demonstrate otherwise so that their contradictory statements on where they stand would 
+surely make them a hypocrite. 
+
+
