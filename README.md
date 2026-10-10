@@ -30,7 +30,7 @@ commercial arrangements at that point in time. And nowadays, a person comparing
 Google's Gemini with these new A.I. corporations' products would probably 
 conclude that they are roughly equal. Without those A.I. corporations, Google 
 probably would not have released Gemini. It had very little incentive to, 
-the umbrella corporation it had became. And Google corporation's great expanse 
+the umbrella corporation it had become. And Google corporation's great expanse 
 had come with it many failed projects. Just as Google had come to be a 
 multinational government contractor, so too will OpenAI and Anthropic. That 
 is the name of the game of corporations headquartered in America. 
