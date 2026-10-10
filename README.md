@@ -63,7 +63,7 @@ still stuck behind the proprieties.
 The corporatist solution of concentrating power in a handful of newly-formed A.I. 
 corporations will work out well for preserving the momentum of future technological 
 developments. And that should get quite interesting as the West recalls how important 
-hardware production is, and A.I. technologies could definitely help with that renewed 
+domestic hardware production is, and A.I. technologies could definitely help with that renewed 
 demand. 
 
 The technology culture has changed because of OpenAI and Anthropic, obviously. 
