@@ -67,7 +67,7 @@ domestic hardware production is, and A.I. technologies could definitely help wit
 demand. 
 
 The technology culture has changed because of OpenAI and Anthropic, obviously. 
-The term "proto-corporatist" is only appropriate to describe how OpenAI and 
+The term **"proto-corporatist"** is only appropriate to describe how OpenAI and 
 Anthropic have come to dominate in market share of this emerging technology. 
 The introduction of remote work for desk jobs that started sometime around the 
 Covid-19 pandemic lockdowns caused less worker cohesion and then played right 
