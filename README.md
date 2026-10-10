@@ -39,7 +39,7 @@ As for colleges and universities, I personally have spent years in the academic
 environment, although was not awarded such honors as Summa Cum Laude, contributed 
 greatly by the fact that I was and am not an attractive blonde or beautifully 
 unclothed Arabian woman nor a privileged one from a long line of European scholars 
-nor a female from a upper-class Asian Bourgeoisie family that learned how to master 
+nor a female from an upper-class Asian Bourgeoisie family that learned how to master 
 playing the violin, piano, and all the sciences any American university could ever 
 hope to offer before the education would have turned into a scam. It's whatever, 
 though. It's cool. I'm OK with that. The academic environment is good for building 
