@@ -161,15 +161,16 @@ occurred under their administration would be attributed to them. But when one ta
 back and views those chains of events in terms of individual choices as well as the societal 
 structures in play, then it would be somewhat outrageous to claim with confidence that 
 Indians could not resolve their famines, Vietnamese could not produce representative democracy 
-nor administer their plantations without French administration, and so on. It is a game with 
-serious consequences, these acts of historical and political attribution to the causes of 
-problems. It is irrational when agents in the name of matters such as the nation-state, the 
-tribe, the organization and so on, choose sides and reframe the circumstances of the problems 
-they revolve around as the adverse effects of the other. Simple in concept, overwhelmingly 
-complex in industrial practice and beyond. And under some circumstances of pressure and 
-antagonism, that is where human subjectivity devotes itself to. The problems of A.I., as agents 
-that judge will predictably fumble on a frequent basis, relates to these matters. The concept 
-of possession and rights is another super-umbrella related to these problems of judgment. 
+nor administer their plantations without French administration, and so on, and therefore the 
+Anglo-Saxon or French identity was responsible. It is a game with serious consequences, these 
+acts of historical and political attribution to the causes of problems. It is irrational when 
+agents in the name of matters such as the nation-state, the tribe, the organization and so on, 
+choose sides and reframe the circumstances of the problems they revolve around as the adverse 
+effects of the other. Simple in concept, overwhelmingly complex in industrial practice and 
+beyond. And under some circumstances of pressure and antagonism, that is where human subjectivity 
+devotes itself to. The problems of A.I., as agents that judge will predictably fumble on a 
+frequent basis, relates to these matters. The concept of possession and rights is another 
+super-umbrella related to these problems of judgment. 
 
 As these years go by, and A.I. technologies become more capable and pose more risks outside 
 of control, if that phrasing really adds up, there will be more problems involving faulty 
