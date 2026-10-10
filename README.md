@@ -46,7 +46,7 @@ though. It's cool. I'm OK with that. The academic environment is good for buildi
 mental blocks so that imagination can be channeled. It is not good for production, 
 since production is execution and execution deters away from abstract thinking and 
 much valued rumination that ideally happens during young adulthood. The new A.I. 
-corporations were able to produce significantly much better A.I.s than older 
+corporations were able to produce significantly much better A.I.s than from older 
 corporations such as IBM, known for Watson. If IBM were to still run the show, 
 Watson would have still been stuck behind a heavy proprietary paywall where only 
 the highest-ranking government and/or corporatist officials would have been able 
