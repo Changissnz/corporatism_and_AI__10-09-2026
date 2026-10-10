@@ -50,7 +50,7 @@ corporations were able to produce significantly much better A.I.s than older
 corporations such as IBM, known for Watson. If IBM were to still run the show, 
 Watson would have still been stuck behind a heavy proprietary paywall where only 
 the highest-ranking government and/or corporatist officials would have been able 
-to use. This mention goes into another feature of these A.I. debates I would like 
+to use it. This mention goes into another feature of these A.I. debates I would like 
 to point out: the call of the do-gooders to go ahead and regulate A.I. is heavily 
 scented with power plays. Many of these A.I. technologies have been heavily 
 guarded by proprietary walls since the peak of the Cold War till the collapse of 
