@@ -4,7 +4,7 @@
 My last article of the year on some socio-economic qualities pertaining to A.I.
 -------------------------------------------------------------------------------
 
-What will people's honest thoughts on the A.I. Boom years be, 10-15 years from now? 
+### What will people's honest thoughts on the A.I. Boom years be, 10-15 years from now? 
 
 Suppose opinions are about diversified but soured in many ways, sort of like how 
 the American populace of laborers and administrators has especially been since 
@@ -58,7 +58,7 @@ the Berlin Wall. Think. Many people would still be stuck in the paradigm of
 having to answer to the authority of teachers if these automation technologies were 
 still stuck behind the proprieties. 
 
-The American Janissaries are out, although structure still needs to be maintained. 
+### The American Janissaries are out, although structure still needs to be maintained. 
 
 The corporatist solution of concentrating power in a handful of newly-formed A.I. 
 corporations will work out well for preserving the momentum of future technological 
