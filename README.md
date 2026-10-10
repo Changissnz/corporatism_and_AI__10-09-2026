@@ -10,8 +10,8 @@ Suppose opinions are diversified but soured in many ways, sort of like how
 the American populace of laborers and administrators has especially been since 
 the 2008 financial crash. Well, then opinions and perspectives abound so that 
 there is no way to state any one with utmost factuality. One thing's for sure, 
-though. The A.I. Boom would not have happened without the proto-corporatist 
-restructuring that the United States directed. As I mentioned in this article, 
+though. **The A.I. Boom would not have happened without the proto-corporatist 
+restructuring that the United States directed.** As I mentioned in this article, 
 [Little American and the World of A.I.](https://github.com/Changissnz/little_american_and_the_world_of_AI__10-4-2026), 
 the process-and-procedures approach was not able to yield the results of the new 
 A.I. corporations. The corporate giants these new A.I. corporations piggybacked on 
