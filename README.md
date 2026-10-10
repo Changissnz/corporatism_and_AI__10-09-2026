@@ -17,7 +17,7 @@ the process-and-procedures approach was not able to yield the results of the new
 A.I. corporations. The corporate giants these new A.I. corporations piggybacked on 
 for things including but not limited to search engine technology, 
 intellectual property, and talent poaching produced significantly better natural 
-language comprehension and generation. The process-and-procedures 
+language comprehension and media generation. The process-and-procedures 
 frameworks, in the years leading up to OpenAI and Anthropic, were also 
 corporatist, but in the way of preserving that guard. And that guard would be 
 considered the new Old Guard, in the realm of commercial technology. It seems, 
