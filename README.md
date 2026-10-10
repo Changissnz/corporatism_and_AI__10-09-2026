@@ -79,7 +79,7 @@ indisputable signs of proto-corporatism clashing into the existing corporatism
 away most of them, displacing them during this proto-corporatistic phase that, 
 upon success, would lead into a new kind of corporatism? And it is not just proto-corporatism 
 but corporatism-corporatism, since emphasis is needed to clarify the difference 
-between the two? 
+between the two. 
 
 > Would the uncertainties and difficulties of these times in the Western world 
   have been less if these A.I. corporations went about their propagation in 
