@@ -142,7 +142,7 @@ cultural impacts. Where ever A.I. corporatism will move into, it will undoubtedl
 spur great changes that upset the equilibriums of poor or rich and dumb or smart 
 in those territories. 
 
-It's one of those concerns where even if a person claims to not believe in, their actions 
+It's one of those concerns where if a person claims to not believe in, their actions 
 demonstrate otherwise so that their contradictory statements on where they stand would 
 surely make them a hypocrite. 
 
