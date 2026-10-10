@@ -76,7 +76,7 @@ Covid-19 pandemic lockdowns caused less worker cohesion and then played right
 into the hand of less human workers needed for those tasks. A 
 restructuralization of the social fabric revolving around technology work. 
 Run and directed by a handful of corporations. Is that not some of the most 
-indisputable signs of proto-corporatism clashing into the existing corporatism 
+indisputable signs of proto-corporatism clashing into the establishment corporatism 
 (the FAANG companies, Facebook, Amazon, Apple, Netflix, and Google), blowing 
 away most of them, displacing them during this proto-corporatistic phase that, 
 upon success, would lead into a new kind of corporatism? And then, it would no 
