@@ -123,7 +123,7 @@ terms, that would be nationalism and religion.**
 
 Despite how annoying and insincere a lot of the conversation about A.I. has become 
 within the last three years or so, people such as me already know it's wiser to 
-appreciate than to really indulge into the serious classics (nationalism and religion), 
+appreciate than to really indulge in the serious classics (nationalism and religion), 
 especially since it is not my official occupation. 
 
 ---------------------------------------------------------------------------------------------------------------------------
