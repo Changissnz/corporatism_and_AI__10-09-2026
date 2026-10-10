@@ -56,7 +56,9 @@ scented with power plays. Many of these A.I. technologies have been heavily
 guarded by proprietary walls since the peak of the Cold War till the collapse of 
 the Berlin Wall. Think. Many people would still be stuck in the paradigm of 
 having to answer to the authority of teachers if these automation technologies were 
-still stuck behind the proprieties. 
+still stuck behind the proprieties. **The idea is the fire in higher education, and 
+this fire is not entirely relatable to the world at large.** The impacts of thorough 
+A.I. developments have a much greater chance of relating to the world at large. 
 
 ### The American Janissaries are out, although structure still needs to be maintained. 
 
