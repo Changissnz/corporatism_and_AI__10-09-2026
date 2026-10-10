@@ -171,7 +171,7 @@ agents in the name of matters such as the nation-state, the tribe, the organizat
 choose sides and reframe the circumstances of the problems they revolve around as the adverse 
 effects of the other. Simple in concept, overwhelmingly complex in industrial practice and 
 beyond. And under some circumstances of pressure and antagonism, that is where human subjectivity 
-devotes itself to. The problems of A.I., as agents that judge, will predictably fumble on a 
+devotes itself. The problems of A.I., as agents that judge, will predictably fumble on a 
 frequent basis when they relate to these matters. The concept of possession and rights is another 
 super-umbrella related to these problems of judgment. 
 
