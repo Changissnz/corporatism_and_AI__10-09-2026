@@ -81,7 +81,6 @@ upon success, would lead into a new kind of corporatism? And it is not just prot
 but corporatism-corporatism, since emphasis is needed to clarify the difference 
 between the two? 
 
-
 > Would the uncertainties and difficulties of these times in the Western world 
   have been less if these A.I. corporations went about their propagation in 
   a less corporatistic way? 
@@ -96,3 +95,30 @@ became greater and more capable. The sore divide between the tangible world
 and cyberspace, alone, must be spelling damnation or something similar, only 
 if one were to be constantly and stubbornly melodramatic about things.
 
+Below is how Grok responded to this question. 
+
+![image info](https://github.com/Changissnz/corporatism_and_AI__10-09-2026/blob/main/Screenshot%202026-10-10%20000109.png)
+
+![image info](https://github.com/Changissnz/corporatism_and_AI__10-09-2026/blob/main/Screenshot%202026-10-10%20000132.png)
+
+![image info](https://github.com/Changissnz/corporatism_and_AI__10-09-2026/blob/main/Screenshot%202026-10-10%20000147.png) 
+
+As I had already imagined, the complexities of these problems, spread out unevenly 
+across countless domains that A.I. touches on, naturally allow for A.I.s such as 
+Grok to give unclear answers, only facts that can lend themselves to supporting 
+one or more of the perspectives. 
+
+--------------------------------------------------------------------------------------------------------------------------
+
+**As these A.I. technologies continue maturing, people from all walks of life will 
+become more disenchanted with these novelties as ancient themes of dogma once 
+again emerge to answer to the plights and despairs of humanity. In concentrated 
+terms, that would be nationalism and religion.** 
+
+> "A.I. is to be controlled by this nation-state." 
+> "There is still a higher power even with how powerful A.I. has become."
+
+Despite how annoying and insincere a lot of the conversation about A.I. has become 
+within the last three years or so, people such as me already know it's wiser to 
+appreciate than to really indulge into the serious classics (nationalism and religion), 
+especially since it is not my official occupation. 
