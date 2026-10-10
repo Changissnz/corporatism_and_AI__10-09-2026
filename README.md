@@ -139,7 +139,7 @@ only needs to react to the corporate organization, A.I. in this discussion, in w
 that signify that they must believe in the corporate impact of A.I. even though they 
 might disapprove or be vehemently against A.I., the scaling and/or socio-economic and 
 cultural impacts. Where ever A.I. corporatism will move into, it will undoubtedly 
-spur great changes that will upset the equilibriums of poor or rich and dumb or smart 
+spur great changes that upset the equilibriums of poor or rich and dumb or smart 
 in those territories. 
 
 It's one of those concerns where even if a person claims to not believe in, their actions 
