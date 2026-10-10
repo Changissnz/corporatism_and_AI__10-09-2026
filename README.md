@@ -79,9 +79,9 @@ Run and directed by a handful of corporations. Is that not some of the most
 indisputable signs of proto-corporatism clashing into the existing corporatism 
 (the FAANG companies, Facebook, Amazon, Apple, Netflix, and Google), blowing 
 away most of them, displacing them during this proto-corporatistic phase that, 
-upon success, would lead into a new kind of corporatism? And it is not just proto-corporatism 
-but corporatism-corporatism, since emphasis is needed to clarify the difference 
-between the two. 
+upon success, would lead into a new kind of corporatism? And then, it would no 
+longer be proto-corporatism but corporatism-corporatism, since emphasis is needed 
+to clarify the difference between the two. 
 
 > Would the uncertainties and difficulties of these times in the Western world 
   have been less if these A.I. corporations went about their propagation in 
